@@ -1,7 +1,6 @@
 ![imagem 5](https://github.com/vinibaubinas/projectportfolio/assets/140778490/5a6d96b1-8a2a-40d0-b011-cfa964f09a88)
 ![imagem1](https://github.com/vinibaubinas/projectportfolio/assets/140778490/35bd64ed-5c63-4e5a-909e-3d58e03d875b)
 ![imagem 6](https://github.com/vinibaubinas/projectportfolio/assets/140778490/fb0d7025-a4da-486a-86ca-7ad931101750)
-![imagem 4](https://github.com/vinibaubinas/projectportfolio/assets/140778490/15083947-c0e0-4994-9f14-c93cd448b61d)
 ![imagem 4](https://github.com/vinibaubinas/projectportfolio/assets/140778490/ab203acb-b71b-4528-b8a7-cab3eae80716)
 ![imagem 3](https://github.com/vinibaubinas/projectportfolio/assets/140778490/8de31c99-d63c-43d7-a5b4-c4759546882e)
 ![imagem 2](https://github.com/vinibaubinas/projectportfolio/assets/140778490/180c327b-b075-4425-a5b7-bf6f471ecb48)
